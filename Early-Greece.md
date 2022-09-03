@@ -1,1 +1,0 @@
-![](https://twitter.com/spongebob/status/1220379115175522305)
