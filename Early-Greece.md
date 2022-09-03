@@ -1,1 +1,1 @@
-![](https://www.deviantart.com/classyfat0112/art/The-spongebob-750075616)
+![](https://twitter.com/spongebob/status/1220379115175522305)
