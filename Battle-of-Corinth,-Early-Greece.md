@@ -1,1 +1,1 @@
-The
+The Battle of Corinth was one that would change Greek history forever. the city was leveled and all of their treasures and art were destroyed.
