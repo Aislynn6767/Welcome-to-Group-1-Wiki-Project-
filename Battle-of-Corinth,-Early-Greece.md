@@ -2,6 +2,10 @@ Not too far from across the globe another event in history was occurring that wo
 
 ![](https://upload.wikimedia.org/wikipedia/commons/thumb/b/bf/Tony_robert-fleury%2C_l%27ultimo_giorno_di_corinto%2C_ante_1870.JPG/1280px-Tony_robert-fleury%2C_l%27ultimo_giorno_di_corinto%2C_ante_1870.JPG)
 
-During Julius Cesar reign Corinth was able to start rebuilding, ironically his success here was overshadowed by the destruction he had in Alexandria, Egypt. The Burning of the library is furthered explained on the next page and it shows their own lost of history. The library saw a decline and a great loss of meaningful texts. Many have pointed their finger towards Julius Caesar
+The Romans,
+
+All in all
+
+During Julius Cesar reign Corinth was able to start rebuilding, ironically his success here was overshadowed by the destruction he had in Alexandria, Egypt. The Burning of the library is furthered explained on the next page and it shows their own lost of history. As the library was part of a fire that made a great loss of meaningful texts. 
 
 embarking fight to conquer
