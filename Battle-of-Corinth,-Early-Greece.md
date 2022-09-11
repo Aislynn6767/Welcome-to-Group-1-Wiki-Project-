@@ -6,6 +6,6 @@ The Romans,
 
 All in all
 
-During Julius Cesar reign Corinth was able to start rebuilding, ironically his success here was overshadowed by the destruction he had in Alexandria, Egypt. The Burning of the library is furthered explained on the next page and it shows their own lost of history. As the library was part of a fire that made a great loss of meaningful texts. 
+During Julius Cesar reign Corinth was able to start rebuilding, ironically his success here was overshadowed by the destruction he is blamed for in Alexandria, Egypt. The Burning of the library is furthered explained on the next page and it shows their own lost of history and texts. 
 
 embarking fight to conquer
