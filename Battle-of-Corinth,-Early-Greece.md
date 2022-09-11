@@ -2,7 +2,8 @@ Not too far from across the globe another event in history was occurring that wo
 
 ![](https://upload.wikimedia.org/wikipedia/commons/thumb/b/bf/Tony_robert-fleury%2C_l%27ultimo_giorno_di_corinto%2C_ante_1870.JPG/1280px-Tony_robert-fleury%2C_l%27ultimo_giorno_di_corinto%2C_ante_1870.JPG)
 
-The Romans,
+As the Romans went on their path of destruction, multiple Greek cities accepted defeat and surrendered. 
+
 
 All in all
 
