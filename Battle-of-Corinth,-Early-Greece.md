@@ -1,1 +1,1 @@
-The Battle of Corinth was one that would change Greek history forever. the city was leveled and all of their treasures and art were destroyed.
+Not to far from across the globe another event in history was occurring that would forever change Greece. It was The Battle of Corinth that involved the Roman Republic and the Greek of Corinth. The aftermath resulted in the city being leveled and all of their treasures and art were destroyed. 
