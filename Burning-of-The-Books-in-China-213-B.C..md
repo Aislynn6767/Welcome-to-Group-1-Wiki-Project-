@@ -1,0 +1,2 @@
+# Burning of the Books - China 213 BCE
+The first dynasty of Imperial China, know as the Qin dynasty, which lasted from (221-206 BCE). This dynasty was founded by the first emperor of the Qin dynasty, Qin Shi Huang. 
