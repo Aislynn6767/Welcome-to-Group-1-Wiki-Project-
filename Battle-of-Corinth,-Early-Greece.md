@@ -2,10 +2,10 @@ Not too far from across the globe another event in history was occurring that wo
 
 ![](https://upload.wikimedia.org/wikipedia/commons/thumb/b/bf/Tony_robert-fleury%2C_l%27ultimo_giorno_di_corinto%2C_ante_1870.JPG/1280px-Tony_robert-fleury%2C_l%27ultimo_giorno_di_corinto%2C_ante_1870.JPG)
 
-The Romans went on with their path of destruction, winning over multiple Greek cities such as Scarpheia and Boeotia before finally making it to Corinth. Even after all the losses the Archaeans made one final stand at Corinth. Despite their efforts the Romans easily outnumbered and powered them dominating the battle. Archaeans men were killed, and the women and children were sold into slavery.   
+The Romans went on with their path of destruction, winning over multiple Greek cities such as Scarpheia and Boeotia before finally making it to Corinth. Even after all the losses the Archaeans made one final stand at Corinth. Despite their efforts the Romans easily outnumbered and powered them dominating the battle. Archaeans men were killed, and the women and children were sold into slavery. For the Archaeans Polybius mentions the carelessness of Roman soldiers, who destroyed works of art or treated them like objects of entertainment. However, they did show respect to the statues of Philopoemen, both for his fame and as he was the first ally of Rome in Greece   
 
 
-All in all
+All in all the city of Corinth did not recover for over a century. While there is archaeological evidence of some minimal habitation in the years afterwards, it was only when Julius Caesar re-established the city as Colonia Laus Iulia Corinthiensis in 44 BC began to thrive again.
 
 During Julius Cesar reign Corinth was able to start rebuilding, ironically his success here was overshadowed by the destruction he is blamed for in Alexandria, Egypt. The Burning of the library is furthered explained on the next page and it shows their own loss of history and texts. 
 
